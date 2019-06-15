@@ -1,0 +1,15 @@
+Ordenanza Nº2307/19
+Ordenanza Nº 2307/19
+Daireaux, 29/04/2019
+VISTO:
+El Expediente Administrativo Nro. 4022-8696/18 iniciado por esta Municipalidad de Daireaux, referente a la Licitación Privada Nro. 04/2018 para la “Adquisición de una Pala-Retro” con destino a la Dirección de Servicios Viales, y
+CONSIDERANDO:
+Que a Folios 88 y 89 obra Acta de Apertura de Propuestas de la cual surge que se “presentaron” dos oferentes: 1) Contreras Martínez Lautaro con domicilio en Ruta Nro. 9 de Daireaux y 2) ZMG Argentina SRL con domicilio en Avda. 44 de Lisandro Olmos;
+Que a folio 90 luce agregado Informe de la Comisión de Preadjudicación del que surge que la Empresa Nro. 1 no cumple con la totalidad de los requisitos exigidos para la presentación del Sobre Nro. 1 por lo que no se procede a la apertura del Sobre Nro. 2 el que se agrega cerrado a Fs. 36;
+Que habiendo la empresa ZMG Argentina SRL dado cumplimento a lo exigido en el Sobre Nro. 1, se procede a la apertura del Sobre Nro. 2 conteniendo la oferta económica, del que surge que ofrece una Pala y retro Marca Liugong Modelo CLG 764A en la suma de $ 1.500.000, por lo que la Comisión de Preadjudicación aconseja se adjudique la Licitación Privada Nro. 04/2018 a ésta última Empresa, dictándose el Decreto Municipal Nro. 672/18 obrante a Fs. 91;
+Que el H. Tribunal de Cuentas de la Provincia de Buenos Aires - Delegación Pehuajó - con fecha 01 de Octubre de 2018 confecciona acta donde a punto 1. objeta la adjudicación dispuesta, por considerar que al no rendir las condiciones la firma Contreras Martínez Lautaro no se considera presentación de oferta válida, resultando de esta manera que la Licitación Privada instrumentada cuenta con una única Oferta presentada por la empresa ZMG Argentina SRL, debiendo haber contado con la autorización de ese H.C,D;
+Que el Articulo 155º de la LOM dispone: “Si en las licitaciones realizadas con las formalidades de esta ley se “registrara” una sola oferta y ésta fuera de evidente conveniencia, la autoridad administrativa podrá resolver su aceptación con autorización del Concejo....”, habiendo procedido el D.E. a la adjudicación dictada por el Decreto referido entendiendo, que si bien una de las Empresas oferentes no rindió la totalidad de los requisitos, se “registró” la presentación de dos ofertas citando como precedente, entre otras, la Licitación Privada Nro. 02/2014 donde se presentaron dos oferentes rindiendo condiciones solo uno de ellos siendo adjudicada sin autorización de ese Organismo;
+Que no obstante ello, y habiéndose incurrido en un error de interpretación sobre los términos del Artículo 155º de la LOM diferente al emitido por el H.T.C., se requiere la convalidación de la Licitación Privada Nro. 04/2018 por parte del H. Concejo Deliberante, dejando expresamente aclarado que la oferta presentada por la Empresa ZMG Argentina SRL resultó la más conveniente a los intereses municipales, hallándose dentro del valor establecido como Presupuesto Oficial;
+Por ello,
+EL HONORABLE CONCEJO DELIBERANTE DE DAIREAUX, EN USO DE SUS ATRIBUCIONES, ACUERDA Y SANCIONA CON FUERZA DE
+ORDENANZA
