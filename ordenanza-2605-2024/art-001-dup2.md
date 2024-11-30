@@ -1,0 +1,2 @@
+ARTICULO 1°: Las obligaciones de carácter fiscal consisten en tasas, derechos y demás contribuciones que la Municipalidad de Daireaux establezca y se regirán por las disposiciones de esta Ordenanza Fiscal.
+El monto de las mismas será establecido en base a las prescripciones que se determinen por cada gravamen ya las alícuotas e afores que fijen las respectivas Ordenanzas Impositivas Anuales. Las denominaciones contribución" y "gravamen” son genéricas y comprenden toda contribución, tasa, derecho y demás obligaciones de orden tributario que imponga la Municipalidad.
