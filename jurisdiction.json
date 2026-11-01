@@ -1,0 +1,11 @@
+{
+  "path": "ar-b-daireaux",
+  "code": "AR-B-DAIREAUX",
+  "name": "Daireaux",
+  "level": "municipality",
+  "parent": "ar-b",
+  "repo": "https://github.com/lexifina/argentina-daireaux-city-law",
+  "build": "built: municipal ordinances (201 ordinances, 201 versions) from https://sibom.slyt.gba.gob.ar/cities/33",
+  "language": "es",
+  "sources": 1
+}
